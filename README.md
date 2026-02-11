@@ -1,0 +1,1 @@
+"#ôßrenci Not tahmin uygulamasç" 
